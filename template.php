@@ -1,0 +1,2 @@
+assalamualaikumm
+waalikumsalam
