@@ -1,2 +1,4 @@
 assalamualaikumm
 waalikumsalam
+
+djwidwqdikd
